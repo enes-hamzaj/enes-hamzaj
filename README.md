@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Enes Hamzaj
+- 🌱 I’m currently learning stuff
+- 📫 How to reach me just msg me :)
